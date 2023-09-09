@@ -1,2 +1,2 @@
 # slass-work
-idk
+ya ne znaju
